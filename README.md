@@ -1,1 +1,0 @@
-# activite_mooc
